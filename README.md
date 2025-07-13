@@ -1,4 +1,4 @@
-![placeholder](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwiki.leagueoflegends.com%2Fen-us%2FAatrox&psig=AOvVaw2SQ3NmR3nH9i2iqPlOJBy1&ust=1752460828377000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCIjg87_nuI4DFQAAAAAdAAAAABAi)
+![placeholder](https://media.discordapp.net/attachments/1346988185598562305/1393784527356301426/252px-Aatrox_Render.png?ex=68746e7e&is=68731cfe&hm=9c0244802846619f817406b891b64de4faa22a0fb1770c1ff991bee759bdf9f3&=&format=webp&quality=lossless)
 
 <!--
 **boundlesslyArtiodactyl/boundlesslyArtiodactyl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
