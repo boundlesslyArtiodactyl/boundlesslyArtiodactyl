@@ -1,5 +1,5 @@
 ![placeholder](https://media.discordapp.net/attachments/1346988185598562305/1393784527356301426/252px-Aatrox_Render.png?ex=68746e7e&is=68731cfe&hm=9c0244802846619f817406b891b64de4faa22a0fb1770c1ff991bee759bdf9f3&=&format=webp&quality=lossless)
-
+[straw.page](https://szky.straw.page/) ⋆ [prns.cc](https://pronouns.cc/@PBandJ)
 <!--
 **boundlesslyArtiodactyl/boundlesslyArtiodactyl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
