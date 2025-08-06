@@ -1,4 +1,4 @@
-![placeholder](https://cdn.discordapp.com/attachments/1204570352693542982/1402754910780395660/360.png?ex=689510d0&is=6893bf50&hm=76e790594bbf789624dd4cc5fc1424802b4e60e1bd8e277e3445d6d388383f35&)
+![placeholder](https://media.discordapp.net/attachments/935589724138131456/1402756149807415377/252px-Aatrox_Render.png?ex=689511f8&is=6893c078&hm=40b55a0d5a74ceb37b74b4bbc81a2634a255d60efbbf4de09332f4c1a361d4bc&=&format=webp&quality=lossless)
 [patreon](https://www.patreon.com/c/pbandjj/) - [straw.page](https://szky.straw.page/) - [prns.cc](https://pronouns.cc/@PBandJ)
 <!--
 **boundlesslyArtiodactyl/boundlesslyArtiodactyl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
